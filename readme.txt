@@ -7,4 +7,4 @@ Amir aded a second line...
 
 
 
-Season 2: Globalization
+Season 2: Globalization (pros and cons)
